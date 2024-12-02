@@ -8,7 +8,7 @@ collections_config:
     name: Blog
     icon: event_available
 paths:
-  static: ''
+  static: ""
   uploads: uploads
 timezone: Australia/Melbourne
 markdown:

@@ -5,6 +5,6 @@ export default {
 	author: {
 		name: "Brodie Cato",
 		email: "hello@nervousghost.com",
-		url: "https://nervousghost.com/about-me/",
+		url: "https://nervousghost.com/about/",
 	},
 };
