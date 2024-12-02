@@ -1,15 +1,24 @@
 <!doctype html>
 <html lang="{{ metadata.language }}">
 	<head>
+		{#-
+			The Optimum Head Order – https://www.youtube.com/watch?v=UW1PEMBdX5E
+			1. <meta charset|http-equiv|viewport />
+			2. <title>
+			3. preconnect
+			4. <script src="" async></script>
+			5. CSS that includes @import
+			6. Synchronous JS
+			7. Synchronous CSS
+			8. preload
+			9. <script src="" defer></script>
+			10. prefetch / prerender
+			11. Everything else ('SEO' meta tags, icons, Open Graph, etc.)
+		-#}
+
 		<meta charset="utf-8">
 		<meta name="viewport" content="width=device-width, initial-scale=1.0">
 		<title>{{ title or metadata.title }}</title>
-		<meta name="description" content="{{ description or metadata.description }}">
-		<link rel="icon" href="/img/icon.png" type="image/png">
-		<link rel="alternate" href="feed/feed.xml" type="application/atom+xml" title="{{ metadata.title }}">
-
-		{#- Uncomment this if you’d like folks to know that you used Eleventy to build your site!  #}
-		<meta name="generator" content="{{ eleventy.generator }}">
 
 		{#-
 		Plain-text bundles are provided via the `eleventy-plugin-bundle` plugin:
@@ -38,12 +47,20 @@
 
 		{#- Add the heading-anchors web component to the JavaScript bundle #}
 		{%- js %}{% include "node_modules/@zachleat/heading-anchors/heading-anchors.js" %}{% endjs %}
+
+		<meta name="description" content="{{ description or metadata.description }}">
+		<link rel="icon" href="/img/icon.png" type="image/png">
+		<link rel="alternate" href="feed/feed.xml" type="application/atom+xml" title="{{ metadata.title }}">
+		<meta name="generator" content="{{ eleventy.generator }}">
 	</head>
 	<body>
 		<a href="#skip" class="visually-hidden">Skip to main content</a>
 
 		<header>
-			<a href="/" class="home-link">{{ metadata.title }}</a>
+			<a href="/" class="home-link">
+				<img src="/nervousghost-logo.webp" alt="">
+				{{ metadata.title }}
+			</a>
 
 			{#- Read more about `eleventy-navigation` at https://www.11ty.dev/docs/plugins/navigation/ #}
 			<nav>
@@ -66,8 +83,7 @@
 
 		<footer>
 			<p>
-				<em>Built with <a href="https://www.11ty.dev/">{{ eleventy.generator }}</a>
-				</em>
+				<small>Made with <span aria-hidden="true">&heartsuit;</span><span class="visually-hidden">love</span> by <a href="https://ellyloel.com"><span aria-hidden="true">&lt;e//y&gt;</span><span class="visually-hidden">Elly</span></a> using <a href="https://www.11ty.dev/">11ty</a></small>
 			</p>
 		</footer>
 
