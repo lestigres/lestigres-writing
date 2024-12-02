@@ -1,0 +1,17 @@
+collections_config:
+  pages:
+    path: content
+    name: Pages
+    icon: wysiwyg
+  blog:
+    path: content/blog
+    name: Blog
+    icon: event_available
+paths:
+  static: ''
+  uploads: uploads
+timezone: Australia/Melbourne
+markdown:
+  engine: commonmark
+  options:
+    html: true
