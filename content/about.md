@@ -7,4 +7,4 @@ eleventyNavigation:
 
 I am a person that writes stuff.
 
-![Nervous Ghost sprinkling their magic over everything.](/content/nervousghost-logo-with-logotype.webp)
+![Nervous Ghost sprinkling their magic over everything.](/nervousghost-logo-with-logotype.webp)
