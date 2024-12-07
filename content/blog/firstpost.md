@@ -4,16 +4,16 @@ description: |
   “You have guests come to stay often?” you continued, slowly and quietly, your body now drifting toward Abby's ever so slowly, your hooded eyes matching her own, lust playing obviously across both your features.
  
   “It's been a while, actually,” she purred, her voice becoming low and gravelly, barely above a whisper.
- 
- She was looking at you hungrily like she was ready to devour you, as your body inched closer and closer.
- 
- --
- 
- Abby Anderson is a management consultant for FFL&Y, and Isaac of Washington Liberty Financial is her major client. She retreats to her cabin in Vermont with her dog Bear, where she relaxes by chopping wood, and doing woodcrafts.
- 
- Reader has just taken a contract at FFL&Y to fund their passion for printmaking, and they hope to do their first major exhibition later this year. They are staying at a family friend's cabin on the other side of the mountain, and come across Abby while lost in bad weather.
- 
- The two connect immediately, but will they be able to keep their professional and personal lives separate, and will Abby be able to keep her need for control in check?
+  
+  She was looking at you hungrily like she was ready to devour you, as your body inched closer and closer.
+  
+  --
+  
+  Abby Anderson is a management consultant for FFL&Y, and Isaac of Washington Liberty Financial is her major client. She retreats to her cabin in Vermont with her dog Bear, where she relaxes by chopping wood, and doing woodcrafts.
+  
+  Reader has just taken a contract at FFL&Y to fund their passion for printmaking, and they hope to do their first major exhibition later this year. They are staying at a family friend's cabin on the other side of the mountain, and come across Abby while lost in bad weather.
+  
+  The two connect immediately, but will they be able to keep their professional and personal lives separate, and will Abby be able to keep her need for control in check?
 date: 2023-08-01
 updated: 2024-07-02
 tags:
