@@ -11,9 +11,9 @@ collections_config:
     disable_add: false
     disable_add_folder: false
     disable_file_actions: false
-  blog:
-    path: content/blog
-    name: Blog
+  works:
+    path: content/works
+    name: Works
     icon: event_available
     disable_url: false
     disable_add: false

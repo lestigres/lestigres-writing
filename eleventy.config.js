@@ -63,12 +63,10 @@ export default async function (eleventyConfig) {
 		},
 		metadata: {
 			language: "en",
-			title: "Blog Title",
-			subtitle: "This is a longer description about your blog.",
-			base: "https://example.com/",
-			author: {
-				name: "Your Name",
-			},
+			title: "Les Tigres",
+			subtitle:
+				"I'm a connoisseur of fine femslash and (mostly AFAB) trans/NB content. I enjoy writing and reading badass women and theydies from video games. Good grammar is where it's at. Em-dashes are underrated, and under-appreciated.",
+			base: "https://lestigres.gay/",
 		},
 	});
 
