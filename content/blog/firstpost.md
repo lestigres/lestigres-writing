@@ -1,9 +1,9 @@
 ---
 title: The Woodcutter
 description: |
-"You have guests come to stay often?" you continued, slowly and quietly, your body now drifting toward Abby's ever so slowly, your hooded eyes matching her own, lust playing obviously across both your features.
+“You have guests come to stay often?” you continued, slowly and quietly, your body now drifting toward Abby's ever so slowly, your hooded eyes matching her own, lust playing obviously across both your features.
 
-"It's been a while, actually," she purred, her voice becoming low and gravelly, barely above a whisper.
+“It's been a while, actually,” she purred, her voice becoming low and gravelly, barely above a whisper.
 
 She was looking at you hungrily like she was ready to devour you, as your body inched closer and closer.
 
