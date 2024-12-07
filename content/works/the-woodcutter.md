@@ -56,8 +56,6 @@ tags:
   - Mention of alcohol
   - but there is not drunkenness
   - and there is lots of sexy consent
-words: 81,905
-chapters: 10/?
 ---
 
 ## Old Growth
@@ -264,29 +262,25 @@ You were both frozen in suspended motion, your faces inches apart from one anoth
 
 ## Against The Grain
 
-Chapter Summary
+<aside>
 
-> Your want for one another hung in the air between you, mouths slightly open, chests rising and falling intensely. Her hot, shallow breaths matched the sounds of your own. You were each waiting, expectantly, daring the other to cave first. It was like an invisible force was holding each of you back, the anticipation of what was about to transpire building palpably.
->
-> “I can’t wait to watch you fall apart for me,” she breathed, and it was half desire, half promise.
->
-> \--
->
-> Abby delights in taking you apart piece by piece, and loves the ways in which you don't fully pander to her sexy, toppy energy.
->
-> You're relishing in the best one night stand you've had in a while—but it feels like there could be more to this than just a deliciously hot fuck.
+### Chapter Summary
 
-Chapter Notes
+Your want for one another hung in the air between you, mouths slightly open, chests rising and falling intensely. Her hot, shallow breaths matched the sounds of your own. You were each waiting, expectantly, daring the other to cave first. It was like an invisible force was holding each of you back, the anticipation of what was about to transpire building palpably.
+“I can’t wait to watch you fall apart for me,” she breathed, and it was half desire, half promise.
+\--
+Abby delights in taking you apart piece by piece, and loves the ways in which you don't fully pander to her sexy, toppy energy.
+You're relishing in the best one night stand you've had in a while—but it feels like there could be more to this than just a deliciously hot fuck.
 
-> This is the first smut I've written that I'm pretty happy with—I hope y'all enjoy it.
->
-> It's a little indulgent—almost 7000 words of pure smutty goodness (and a touch of fluff here and there)—but I really enjoyed the idea of Abby wrecking the reader painfully slowly over the course of the night (while still saving some juicy stuff for later chapters).
->
-> Comments and kudos are very welcome and motivating. TYSM!
->
-> \-----
->
-> Recommended listening for this chapter is Float, Janelle Monáe
+### Chapter Notes
+
+This is the first smut I've written that I'm pretty happy with—I hope y'all enjoy it.
+It's a little indulgent—almost 7000 words of pure smutty goodness (and a touch of fluff here and there)—but I really enjoyed the idea of Abby wrecking the reader painfully slowly over the course of the night (while still saving some juicy stuff for later chapters).
+Comments and kudos are very welcome and motivating. TYSM!
+\-----
+Recommended listening for this chapter is Float, Janelle Monáe
+
+</aside>
 
 A log in the fireplace popped, crackled sharply and then faded with a quiet, drawn-out hiss. But you were oblivious to the fire, and to the loud _tap-tap-tap_ of the freezing rain on the windows behind you.
 
@@ -590,31 +584,26 @@ You felt her release a hot breath against your forehead, as her mouth curl into 
 
 ## Axe To Grind
 
-Chapter Summary
+<aside>
 
-> “You’re so fucking sexy that it might destroy me,” she whispered, and there was not a sound in the room apart from her aching voice and your heavy breaths. She was intoxicated by you, and you could see that her composure was beginning to break.
->
-> “Then let me destroy you; I wanna taste you,” you offered in reply.
->
-> \--
->
-> You wake up in a bed that isn't yours, being spooned by a tanky lumberjack. One thing definitely leads to another, and that 'another' is you making Abby come.
->
-> As you get to know Abby a little better, this definitely isn't feeling like any one night stand you've had before.
->
-> But that's too good to be true, right? She wouldn't want anything more, would she? And if she did—would you even be ready for that?
+### Chapter Summary
 
-Chapter Notes
+“You’re so fucking sexy that it might destroy me,” she whispered, and there was not a sound in the room apart from her aching voice and your heavy breaths. She was intoxicated by you, and you could see that her composure was beginning to break.
+“Then let me destroy you; I wanna taste you,” you offered in reply.
+\--
+You wake up in a bed that isn't yours, being spooned by a tanky lumberjack. One thing definitely leads to another, and that 'another' is you making Abby come.
+As you get to know Abby a little better, this definitely isn't feeling like any one night stand you've had before.
+But that's too good to be true, right? She wouldn't want anything more, would she? And if she did—would you even be ready for that?
 
-> So this chapter was meant to be wayyyyy shorter, but when I started writing the smut... it just got really long. I was having such fun writing it, and didn't want to rush through the first time we see Abby getting railed. So: hope y'all delight in this even more ridiculously indulgent smut and fluff.
->
-> I'm having a lot of fun working my way through this story. They are really enjoyable characters to write.
->
-> Thanks for all your comments, they really motivate me to keep writing!
->
-> \-----
->
-> Recommended listening for this chapter is Phenomenal, Janelle Monáe
+### Chapter Notes
+
+So this chapter was meant to be wayyyyy shorter, but when I started writing the smut... it just got really long. I was having such fun writing it, and didn't want to rush through the first time we see Abby getting railed. So: hope y'all delight in this even more ridiculously indulgent smut and fluff.
+I'm having a lot of fun working my way through this story. They are really enjoyable characters to write.
+Thanks for all your comments, they really motivate me to keep writing!
+\-----
+Recommended listening for this chapter is Phenomenal, Janelle Monáe
+
+</aside>
 
 Your mouth stretched into a leisurely yawn, and you pulled the covers up around your neck, rubbing your feet together. Fighting off the pink glow of the sunlight through your eyelids, you squeezed your eyelids together more tightly, but your brain had already been coaxed out of its slumber.
 
@@ -988,45 +977,38 @@ You heard Abby’s phone ring through the stereo. She wound down the window, and
 
 ## Sawmill
 
-Chapter Summary
+<aside>
 
-> You attempted to work your features into a semi-neutral visage, but you were about 97% confident you just looked slightly unhinged.
->
-> “Um, hi,” you faltered, “it’s uhhh, it’s nice to meet you… Abby,” and while you were speaking in as professional a tone as you could muster, you were certain it was coming across as stilted and awkward.
->
-> “Uhhh, hi, hello, hey there,” she responded, also flustered and clearly trying to compose herself.
->
-> \--
->
-> It's your first day of your new contract at FFL&Y consulting, and the client, Isaac, is turning out to be a complete jerk.
->
-> To make things worse, it turns out Abby—the same Abby who railed you into oblivion less than 24 hours earlier—is now your new colleague, and she's just undermined you in front of the client.
->
-> You're desperate to keep this contract, but that means keeping Abby at arm's length, to ensure you don't get screwed over like you did with your previous office romance. But can you maintain your resolve? And for how long can you resist Abby in a suit...?
+### Chapter Summary
 
-Chapter Notes
+You attempted to work your features into a semi-neutral visage, but you were about 97% confident you just looked slightly unhinged.
+“Um, hi,” you faltered, “it’s uhhh, it’s nice to meet you… Abby,” and while you were speaking in as professional a tone as you could muster, you were certain it was coming across as stilted and awkward.
+“Uhhh, hi, hello, hey there,” she responded, also flustered and clearly trying to compose herself.
+\--
+It's your first day of your new contract at FFL&Y consulting, and the client, Isaac, is turning out to be a complete jerk.
+To make things worse, it turns out Abby—the same Abby who railed you into oblivion less than 24 hours earlier—is now your new colleague, and she's just undermined you in front of the client.
+You're desperate to keep this contract, but that means keeping Abby at arm's length, to ensure you don't get screwed over like you did with your previous office romance. But can you maintain your resolve? And for how long can you resist Abby in a suit...?
 
-> I’m excited to finally have this ready to go. There’s some key plot moments in this chapter, so it took a bit of extra time as I didn’t want to force the narrative, and open up plot holes later.
->
-> No smut in this one, but get ready for angst, though. What’s a smutty love story without some heavy plot here and there to set the scene for some good make-up sex later, right?!
->
-> But we finally get to meet some more of the Salt Lake crew!
->
-> Chapter notes for every character not named Owen or Mel: \*\[Elaborate backstory on their personality, goals, strengths, weaknesses, and how they know Abby\]\*
->
-> Chapter notes for Owen: \*Khakis and boring sweaters.\*
->
-> Chapter notes for Mel: \*Beige turtleneck sweater dress.\*
->
-> It’s not that I hate them… I just found their whole plotline from the game gave me the irrits.
->
-> I also had a lot of fun turning misogynist-vibes Jordan into an enby queer with a bisexual haircut. ENJOY!
->
-> \-----
->
-> Recommended listening for this chapter is Black Sugar Beach by Janelle Monáe
+### Chapter Notes
+
+I’m excited to finally have this ready to go. There’s some key plot moments in this chapter, so it took a bit of extra time as I didn’t want to force the narrative, and open up plot holes later.
+No smut in this one, but get ready for angst, though. What’s a smutty love story without some heavy plot here and there to set the scene for some good make-up sex later, right?!
+But we finally get to meet some more of the Salt Lake crew!
+
+#### Chapter Notes for every character not named Owen or Mel: \*\[Elaborate backstory on their personality, goals, strengths, weaknesses, and how they know Abby\]\*
+
+#### Chapter Notes for Owen: \*Khakis and boring sweaters.\*
+
+#### Chapter Notes for Mel: \*Beige turtleneck sweater dress.\*
+
+It’s not that I hate them… I just found their whole plotline from the game gave me the irrits.
+I also had a lot of fun turning misogynist-vibes Jordan into an enby queer with a bisexual haircut. ENJOY!
+\-----
+Recommended listening for this chapter is Black Sugar Beach by Janelle Monáe
 
 See the end of the chapter for more [notes](#endnotes4)
+
+</aside>
 
 _Fuck. Did I check the kitchen bench? How are they not there? Where the fuck are they?_
 
@@ -1444,47 +1426,42 @@ You climbed into Sausage the car, piling your satchel onto the front seat, and p
 
 You watched in the rearview mirror as the taillights of Abby's Jeep pulled out of the parking lot and drove away.
 
-Chapter End Notes
+<aside>
 
-> Honestly, your comments really make a massive difference in my motivation! I'd love to know what you think and what you're enjoying, as it helps me to improve my writing. :)
+### Chapter End Notes
+
+Honestly, your comments really make a massive difference in my motivation! I'd love to know what you think and what you're enjoying, as it helps me to improve my writing. :)
+
+</aside>
 
 ## Lumber Yard
 
-Chapter Summary
+<aside>
 
-> “\*Tea\* is what’s wrong with tea. You should drink a \*real\* beverage in the morning,” Abby scoffed, taking a large gulp of coffee, exaggerating her satisfaction as she did so, and looking to the others with an \*Am I right, folks?\* face. Mel and Owen mumbled in assent.
->
-> “I’m with Abby on this one, I’m afraid,” Owen conceded gravely to you, before letting out a small laugh.
->
-> “You \*consultants\* and your \*Americanos\*,” and you rolled your eyes right back at them, voice sassy and unabashed. “You’re like… a stereotype of \*yourselves. Honestly\*. No matter, though—\*some\* of us have a more refined palette, I suppose,” and you took a haughty, self-righteous sip, a smirk appearing at the edge of your lips.
->
-> \--
->
-> You survived your first day with Abby as your colleague, but there's a long way still to go on your project. Problem is, you can't stop thirsting over Abby, and she can't seem to help flirting with \*you\*.
->
-> Can you two maintain your professional boundaries? And how will you navigate things when past hurts come back to haunt you both?
+### Chapter Summary
 
-Chapter Notes
+“\*Tea\* is what’s wrong with tea. You should drink a \*real\* beverage in the morning,” Abby scoffed, taking a large gulp of coffee, exaggerating her satisfaction as she did so, and looking to the others with an \*Am I right, folks?\* face. Mel and Owen mumbled in assent.
+“I’m with Abby on this one, I’m afraid,” Owen conceded gravely to you, before letting out a small laugh.
+“You \*consultants\* and your \*Americanos\*,” and you rolled your eyes right back at them, voice sassy and unabashed. “You’re like… a stereotype of \*yourselves. Honestly\*. No matter, though—\*some\* of us have a more refined palette, I suppose,” and you took a haughty, self-righteous sip, a smirk appearing at the edge of your lips.
+\--
+You survived your first day with Abby as your colleague, but there's a long way still to go on your project. Problem is, you can't stop thirsting over Abby, and she can't seem to help flirting with \*you\*.
+Can you two maintain your professional boundaries? And how will you navigate things when past hurts come back to haunt you both?
 
-> Thanks for your patience, bbs! I just finished up my old job, and am about to start a new one, so it’s been A Time(TM).
->
-> This chapter has also been quite challenging to write. It was originally going to be much longer, but I basically did a whole rewrite in the last two days and split it into two chapters so it flows a little better, and to allow the characters room for growth.
->
-> If you care about this sort of thing up front: There’s reference to Reader’s childhood friendship with Ellie, including brief mentions of her parents, who are Anna (alive) and Joel (yes, they are magically together, go with it), early on at the start of the chapter. It’s not much in total: just a couple of paragraphs for narrative and worldbuilding purposes, and it’s all pretty light.
->
-> Owen and Mel are back, and we meet Manny for the first time!
->
-> I hope you get some kind of twisted enjoyment of the consulting worldbuilding—and that it makes you laugh either at or with them all (your choice!). Let’s just say I’ve spent a lot of time in that world, so it’s very familiar to me (and for those of you who know what the fuck this means: I’m very pro-agile, but only when it’s done right—which is rarely, unfortunately!
->
-> There’s also a bit of angst towards the end of this chapter, so strap in.
->
-> But as a nice treat to get us all through: there's more of Abby Wears A Suit! It’s been delightful piecing together her wardrobe in my mind. Nothing like some sartorial joy to keep a writer going.
->
-> \-----
->
-> Recommended listening for this first chapter is A Dry Red by Janelle Monáe
+### Chapter Notes
+
+Thanks for your patience, bbs! I just finished up my old job, and am about to start a new one, so it’s been A Time(TM).
+This chapter has also been quite challenging to write. It was originally going to be much longer, but I basically did a whole rewrite in the last two days and split it into two chapters so it flows a little better, and to allow the characters room for growth.
+If you care about this sort of thing up front: There’s reference to Reader’s childhood friendship with Ellie, including brief mentions of her parents, who are Anna (alive) and Joel (yes, they are magically together, go with it), early on at the start of the chapter. It’s not much in total: just a couple of paragraphs for narrative and worldbuilding purposes, and it’s all pretty light.
+Owen and Mel are back, and we meet Manny for the first time!
+I hope you get some kind of twisted enjoyment of the consulting worldbuilding—and that it makes you laugh either at or with them all (your choice!). Let’s just say I’ve spent a lot of time in that world, so it’s very familiar to me (and for those of you who know what the fuck this means: I’m very pro-agile, but only when it’s done right—which is rarely, unfortunately!
+There’s also a bit of angst towards the end of this chapter, so strap in.
+But as a nice treat to get us all through: there's more of Abby Wears A Suit! It’s been delightful piecing together her wardrobe in my mind. Nothing like some sartorial joy to keep a writer going.
+\-----
+Recommended listening for this first chapter is A Dry Red by Janelle Monáe
 
 See the end of the chapter for more [notes](#endnotes5)
+
+</aside>
 
 You got home just before midnight, parking Sausage in the familiar driveway of the Williams’s home where you would stay during the week while working.
 
@@ -1828,54 +1805,46 @@ You looked around the room, trying to understand what the hell just happened, an
 
 You sank back against the wall, and turned your eyes to the ceiling.
 
-Chapter End Notes
+<aside>
 
-> Writing this chapter really pulled on my feels. Our poor bb queers and their trauma. Send them hugs. Don’t worry, it will get better real soon.
->
-> Half of the next chapter is already written, so hopefully it doesn’t take too long. Building things up again is so much easier and more enjoyable than writing conflict, so send me your goodest vibes of encouragement!
->
-> Comments are really welcome as always, they really help a writer like me get those sweet serotonin hits, so: say hi and share your thoughts!
->
-> And a bonus fact for you all—'the art of dishevelment' is an Italian concept, called 'sprezzatura' (sprez·za·tu·ra), defined as:
-> studied nonchalance; graceful conduct or performance without apparent effort (courtesy of Merriam-Webster). Sums up our girl pretty well, I reckon.
+### Chapter End Notes
+
+Writing this chapter really pulled on my feels. Our poor bb queers and their trauma. Send them hugs. Don’t worry, it will get better real soon.
+Half of the next chapter is already written, so hopefully it doesn’t take too long. Building things up again is so much easier and more enjoyable than writing conflict, so send me your goodest vibes of encouragement!
+Comments are really welcome as always, they really help a writer like me get those sweet serotonin hits, so: say hi and share your thoughts!
+And a bonus fact for you all—'the art of dishevelment' is an Italian concept, called 'sprezzatura' (sprez·za·tu·ra), defined as:
+studied nonchalance; graceful conduct or performance without apparent effort (courtesy of Merriam-Webster). Sums up our girl pretty well, I reckon.
+
+</aside>
 
 ## Sawdust
 
-Chapter Summary
+<aside>
 
-> “Met someone out hiking actually,” you said, trying to keep your response vague.
->
-> “Who??? What are the odds of that?!”
->
-> You didn’t respond straight away, and then three dots appeared as Ellie started typing again.
->
-> “YOU FUCKING DIDN’T. NO FUCKING WAY WTAF OMGGGGGG!!! 🤣🤣🤣”
->
-> What the fuck? There was no way Ellie would be on texting terms with Abby, right?
->
-> “DUUUUUUDE DID YOU FUCK ABBY THE LUMBERJACK OMG LOLOLOLOLLLLL?!!!!!!”
->
-> \--
->
-> In the wake of your heated argument with Abby, you're struggling to make sense of how things went so horribly wrong.
->
-> Your friend Dina offers a welcome ear and suggests a way forward, while her pain-in-the-ass wife, your best friend Ellie, provides unending comic relief.
->
-> But Abby's not the only one who's pissed with you.
->
-> What can you possibly do to make things right with Abby?
+### Chapter Summary
 
-Chapter Notes
+“Met someone out hiking actually,” you said, trying to keep your response vague.
+“Who??? What are the odds of that?!”
+You didn’t respond straight away, and then three dots appeared as Ellie started typing again.
+“YOU FUCKING DIDN’T. NO FUCKING WAY WTAF OMGGGGGG!!! 🤣🤣🤣”
+What the fuck? There was no way Ellie would be on texting terms with Abby, right?
+“DUUUUUUDE DID YOU FUCK ABBY THE LUMBERJACK OMG LOLOLOLOLLLLL?!!!!!!”
+\--
+In the wake of your heated argument with Abby, you're struggling to make sense of how things went so horribly wrong.
+Your friend Dina offers a welcome ear and suggests a way forward, while her pain-in-the-ass wife, your best friend Ellie, provides unending comic relief.
+But Abby's not the only one who's pissed with you.
+What can you possibly do to make things right with Abby?
 
-> So this chapter didn't go where I expected it to, but it turned out pretty fun. Enter obnoxious Ellie and her actually helpful wife Dina! There's some healthy and entertaining shit-stirring, a little of Reader, but mostly Ellie, who lives up to her reputation as a perpetual troll and well-deserved (emotional!) punching bag. No Ellie hate here, I just think she's a total pain in the arse, and Dina wouldn't have a bar of it!
->
-> Manny also makes an appearance to offer both scolding and counsel.
->
-> We're working through the feels here, people! There should be enough comic relief in there to get you through! I really enjoyed writing Dina and Reader thirsting over Abby together—I hope you love it too!
->
-> As always, comments are welcome and encouraged!
+### Chapter Notes
+
+So this chapter didn't go where I expected it to, but it turned out pretty fun. Enter obnoxious Ellie and her actually helpful wife Dina! There's some healthy and entertaining shit-stirring, a little of Reader, but mostly Ellie, who lives up to her reputation as a perpetual troll and well-deserved (emotional!) punching bag. No Ellie hate here, I just think she's a total pain in the arse, and Dina wouldn't have a bar of it!
+Manny also makes an appearance to offer both scolding and counsel.
+We're working through the feels here, people! There should be enough comic relief in there to get you through! I really enjoyed writing Dina and Reader thirsting over Abby together—I hope you love it too!
+As always, comments are welcome and encouraged!
 
 See the end of the chapter for more [notes](#endnotes6)
+
+</aside>
 
 You spent the rest of the afternoon feeling completely shitty for what you’d said to Abby. When you returned from the print room with a pile of blank paper, Abby was nowhere to be seen. Her office was empty, and her laptop and the pile of documents she’d been printing were gone. You swallowed, but the painful, guilty lump in your throat wouldn’t abate.
 
@@ -2275,60 +2244,52 @@ You walked toward the exit, turning back with a furtive look towards Abby, whose
 
 A hiss of hot air escaped your lips in admiration of the sheer power this woman possessed, and you turned towards the exit and headed upstairs to the office wishing beyond hope that you could make things okay between the two of you.
 
-Chapter End Notes
+<aside>
 
-> The next chapter is about halfway done! I ended up splitting the chapter again as it was getting loooooong and it felt like leaving it on the precipice of a bit of angst and uncertainty will make Abby and Reader's coming back together more explosive after being so painfully drawn out (don't worry, I'm getting impatient, too!).
->
-> Fear not, though, more smut on the horizon in the next one or two chapters, but for now, I need to make us all suffer just a liiiiiiittle bit longer!
->
-> Thanks for all your comments after the last chapter. It really gives me a great hit of encouragement and helps fuel the writing! Please drop any further comments and let me know what you think of how we're working through things!
+### Chapter End Notes
+
+The next chapter is about halfway done! I ended up splitting the chapter again as it was getting loooooong and it felt like leaving it on the precipice of a bit of angst and uncertainty will make Abby and Reader's coming back together more explosive after being so painfully drawn out (don't worry, I'm getting impatient, too!).
+Fear not, though, more smut on the horizon in the next one or two chapters, but for now, I need to make us all suffer just a liiiiiiittle bit longer!
+Thanks for all your comments after the last chapter. It really gives me a great hit of encouragement and helps fuel the writing! Please drop any further comments and let me know what you think of how we're working through things!
+
+</aside>
 
 ## Kindling
 
-Chapter Summary
+<aside>
 
-> “Youuuu… said something today. You said… I distracted you. I made you nervous…” her voice trailed off.
->
-> “Oh… yeah, I… I guess I did say that,” you replied, fidgeting with your fingers a little awkwardly.
->
-> All of a sudden, your senses were sharpened, and your breathing shallowed. You pressed your lips together and and looked anywhere other than at Abby’s face, which was now inclined in your direction as she studied your features carefully with that unreadable look.
->
-> “What… did I do that made you nervous? ” she asked gingerly.
->
-> You paused, uncertain of how to respond. “I… I’m not sure I should answer that,” you said, avoiding the question.
->
-> \--
->
-> Abby's been avoiding you, despite your best efforts to talk to her about what happened, and to make matters worse, your crush on her somehow grows the more time passes.
->
-> But when things go awry in a meeting with Isaac and she comes to your rescue, you're left figuring out whether she is just being a good colleague, or if there is more to her reaction than she's letting on.
->
-> Nothing helps colleagues to work through their issues than pulling an all-nighter to keep an important client happy, you suppose.
+### Chapter Summary
 
-Chapter Notes
+“Youuuu… said something today. You said… I distracted you. I made you nervous…” her voice trailed off.
+“Oh… yeah, I… I guess I did say that,” you replied, fidgeting with your fingers a little awkwardly.
+All of a sudden, your senses were sharpened, and your breathing shallowed. You pressed your lips together and and looked anywhere other than at Abby’s face, which was now inclined in your direction as she studied your features carefully with that unreadable look.
+“What… did I do that made you nervous? ” she asked gingerly.
+You paused, uncertain of how to respond. “I… I’m not sure I should answer that,” you said, avoiding the question.
+\--
+Abby's been avoiding you, despite your best efforts to talk to her about what happened, and to make matters worse, your crush on her somehow grows the more time passes.
+But when things go awry in a meeting with Isaac and she comes to your rescue, you're left figuring out whether she is just being a good colleague, or if there is more to her reaction than she's letting on.
+Nothing helps colleagues to work through their issues than pulling an all-nighter to keep an important client happy, you suppose.
 
-> We're back! Thanks so much for your patience. Things have been crazy busy, and I've been chipping away day by day to figure out how to bring our babes back together in a way that feels authentic to their characters and the progression of the story.
->
-> I have good news and bad news for y'all:
->
-> The good news is that Abby and Reader are defo getting back together this chapter. Woo! Party!
->
-> The bad, sad, not very glad news is that you'll have to wait to the start of the next chapter for all the smutty goodness, as it took a bit longer than expected to get us where we need to be for all of this to coalesce in a late at night working together in an empty FFL&Y office.
->
-> But in return for your patience, you get:
-> \- Lots of tantalisingly \*real\* Reader angst as they work through their feels for Abby
-> \- Lots of indecipherable glances in office-related settings
-> \- A bit of character development for everyone's fave sidekick, Manny
-> \- Abby teasing us all with her outstanding butt in that blue suit we met previously, and with her tie loosened and the top button of her business shirt undone
-> \- The promise of oodles of 'finally giving in to our feelings' smut, PLUS Abby in tennis shorts, coming your way next chapter!
->
-> Fun times ahead! Hope you enjoy all the yearning in the meantime!
->
-> \-----
->
-> Recommended listening for this chapter is Know Better by Janelle Monáe
+### Chapter Notes
+
+We're back! Thanks so much for your patience. Things have been crazy busy, and I've been chipping away day by day to figure out how to bring our babes back together in a way that feels authentic to their characters and the progression of the story.
+I have good news and bad news for y'all:
+The good news is that Abby and Reader are defo getting back together this chapter. Woo! Party!
+The bad, sad, not very glad news is that you'll have to wait to the start of the next chapter for all the smutty goodness, as it took a bit longer than expected to get us where we need to be for all of this to coalesce in a late at night working together in an empty FFL&Y office.
+But in return for your patience, you get:
+
+- Lots of tantalisingly \*real\* Reader angst as they work through their feels for Abby
+- Lots of indecipherable glances in office-related settings
+- A bit of character development for everyone's fave sidekick, Manny
+- Abby teasing us all with her outstanding butt in that blue suit we met previously, and with her tie loosened and the top button of her business shirt undone
+- The promise of oodles of 'finally giving in to our feelings' smut, PLUS Abby in tennis shorts, coming your way next chapter!
+  Fun times ahead! Hope you enjoy all the yearning in the meantime!
+  \-----
+  Recommended listening for this chapter is Know Better by Janelle Monáe
 
 See the end of the chapter for more [notes](#endnotes7)
+
+</aside>
 
 An angst-filled few weeks had passed since you’d seen Abby and Manny at the gym, and things between the two of you were still very much unresolved, and your text message to her had gone unanswered.
 
@@ -2932,59 +2893,48 @@ She closed her eyes, taking in the sensations of you as her hands moved to the s
 
 She tilted her head back ever so slightly, her blonde eyelashes catching the light of the desk lamp as her lips brushed lightly against yours.
 
-Chapter End Notes
+<aside>
 
-> Phew, well that was a rather epic 12k words wasn't it, my fellow thirsty Abby stans!
->
-> This chapter turned out completely differently from my chapter notes. I started writing it per the notes and it just felt a bit too contrived and fantastical (and not a good way). I'm trying really hard to follow where the character development is taking me and be ok with the wild directions this takes us all in!
->
-> I shall now disappear into my smut cave and see you all soon with the next chapter. Hang tight, my pretties!
->
-> Keep the comments coming, too: I appreciate every single one of them, and they've really kept me on track in this angst-filled time for our poor Reader!
+### Chapter End Notes
+
+Phew, well that was a rather epic 12k words wasn't it, my fellow thirsty Abby stans!
+This chapter turned out completely differently from my ### Chapter Notes. I started writing it per the notes and it just felt a bit too contrived and fantastical (and not a good way). I'm trying really hard to follow where the character development is taking me and be ok with the wild directions this takes us all in!
+I shall now disappear into my smut cave and see you all soon with the next chapter. Hang tight, my pretties!
+Keep the comments coming, too: I appreciate every single one of them, and they've really kept me on track in this angst-filled time for our poor Reader!
+
+</aside>
 
 ## Felled
 
-Chapter Summary
+<aside>
 
-> Those pillowy-soft lips formed into a sulky pout and she looked up at you from her perch at the edge of the chair, exasperated—but obediently awaiting your next instruction.
->
-> 'Fuck, well this is genuine delight', you thought, exceedingly pleased with yourself.
->
-> You would honestly not have minded if Abby had, in fact, completely ignored your offer; had torn off your clothes and railed you for the remainder of the evening atop that beautiful oaken desk, leaving smears of your release as battle scars across it’s surface.
->
-> Getting Abby Anderson to submit, though? That was something you knew wouldn’t happen with any kind of regularity, so you’d take advantage while you had the chance.
->
-> \--
->
-> You're alone with Abby in her darkened office, and you've both finally gotten your shit together to communicate that you're head-over-heels for one another. You're desperate for her to fuck you, but after pining after her for weeks, you decide to make her suffer juuuuust a little bit before you let her have her way with you, and surprisingly—she lets you.
+### Chapter Summary
 
-Chapter Notes
+Those pillowy-soft lips formed into a sulky pout and she looked up at you from her perch at the edge of the chair, exasperated—but obediently awaiting your next instruction.
+'Fuck, well this is genuine delight', you thought, exceedingly pleased with yourself.
+You would honestly not have minded if Abby had, in fact, completely ignored your offer; had torn off your clothes and railed you for the remainder of the evening atop that beautiful oaken desk, leaving smears of your release as battle scars across it’s surface.
+Getting Abby Anderson to submit, though? That was something you knew wouldn’t happen with any kind of regularity, so you’d take advantage while you had the chance.
+\--
+You're alone with Abby in her darkened office, and you've both finally gotten your shit together to communicate that you're head-over-heels for one another. You're desperate for her to fuck you, but after pining after her for weeks, you decide to make her suffer juuuuust a little bit before you let her have her way with you, and surprisingly—she lets you.
 
-> My brain, about four weeks ago: Ok, we’ve got a heap of work to do this weekend for the class I have to start teaching next week.
->
-> Also my brain: Here, I got you this steaming bucket of thirsty content for your writing inspiration that you’ve been trying to channel for the last several weeks. I’ve refused to be forthcoming with it til now—but HERE YOU GO!
->
-> My brain, two weeks later: Ok! Things are a little less hectic now, let’s GOOOOOO!
->
-> Also my brain: Nahhhhh, now’s not a good time for us, we can only write for maybe 30 minutes a day, every 2-3 days at most?
->
-> My brain: 🫠
->
-> \-----
->
-> So yeah, that's the kind of month or so it's been! Work has been hectic-as, and I've not had writer's block per se, because the story's been THERE in my head ready to go—but it's been more like "My brain is so exhausted that I can hardly sit down and concentrate for long enough to get back into flow" so I've had to take quite a few breaks along the way to get this done. It's been frustrating, because about two weeks ago, after finally realising where I wanted to take this chapter to keep it authentic to the characters, I just had absolutely no mental energy to sit down and turn those ideas into actual words on an actual screen. Buuuut it's important to me that I'm in the right headspace when writing, or else it's just really challenging to get the right tension and vibe I'm wanting from these two. They have such fun chemistry, and whilst I'm anti-perfectionist, I'm pretty dedicated to create characters that feel consistent and believable.
->
-> Anyway, after a few weeks of intermittent little spurts of writing every few days whenever I could manage an hour or so, WE ARE FINALLY HERE, PEOPLE! Our beloved Abby and reader are reuniting in some truly hot-and-heavy, thirsty AF, sexy sex times at the office. You asked, I've delivered.
->
-> As seems to happen with my smut of late, I hit an insanely high word count as I was having so much fun tormenting our dear Abby at the hands of our reader. There will be more to come from this late night at the office, but for now, this should tide all you thirsty babes over for a little while at least.
->
-> Have fun, and as always—leave me a comment and tell me what you think!
->
-> \-----
->
-> Recommended listening for this chapter is Paid In Pleasure by Janelle Monáe
+### Chapter Notes
+
+My brain, about four weeks ago: Ok, we’ve got a heap of work to do this weekend for the class I have to start teaching next week.
+Also my brain: Here, I got you this steaming bucket of thirsty content for your writing inspiration that you’ve been trying to channel for the last several weeks. I’ve refused to be forthcoming with it til now—but HERE YOU GO!
+My brain, two weeks later: Ok! Things are a little less hectic now, let’s GOOOOOO!
+Also my brain: Nahhhhh, now’s not a good time for us, we can only write for maybe 30 minutes a day, every 2-3 days at most?
+My brain: 🫠
+\-----
+So yeah, that's the kind of month or so it's been! Work has been hectic-as, and I've not had writer's block per se, because the story's been THERE in my head ready to go—but it's been more like "My brain is so exhausted that I can hardly sit down and concentrate for long enough to get back into flow" so I've had to take quite a few breaks along the way to get this done. It's been frustrating, because about two weeks ago, after finally realising where I wanted to take this chapter to keep it authentic to the characters, I just had absolutely no mental energy to sit down and turn those ideas into actual words on an actual screen. Buuuut it's important to me that I'm in the right headspace when writing, or else it's just really challenging to get the right tension and vibe I'm wanting from these two. They have such fun chemistry, and whilst I'm anti-perfectionist, I'm pretty dedicated to create characters that feel consistent and believable.
+Anyway, after a few weeks of intermittent little spurts of writing every few days whenever I could manage an hour or so, WE ARE FINALLY HERE, PEOPLE! Our beloved Abby and reader are reuniting in some truly hot-and-heavy, thirsty AF, sexy sex times at the office. You asked, I've delivered.
+As seems to happen with my smut of late, I hit an insanely high word count as I was having so much fun tormenting our dear Abby at the hands of our reader. There will be more to come from this late night at the office, but for now, this should tide all you thirsty babes over for a little while at least.
+Have fun, and as always—leave me a comment and tell me what you think!
+\-----
+Recommended listening for this chapter is Paid In Pleasure by Janelle Monáe
 
 See the end of the chapter for more [notes](#endnotes8)
+
+</aside>
 
 Abby’s blue eyes looked up at you from where she sat in her black leather office chair. You were positioned between her splayed legs, her hands resting against the small of your back and your faces barely inches apart from one another. One of your hands rubbed gently against her jawline, while the fingers of your other hand nudged into the messy blonde hair at the nape of her neck. The sounds of your heavy breaths punctuated the otherwise-silent office.
 
@@ -3408,57 +3358,47 @@ One of Abby’s hand moved to the small of your back, and the other to where you
 
 You bit your lip again, and then her mouth found yours, and she kissed you deeply as she grasped your ass ravenously with her well-muscled hand.
 
-Chapter End Notes
+<aside>
 
-> There's a part 2 of sorts to this chapter, where Abby will definitely rail our dear reader in her office. But I really just wanted to get this epic bit of smut into your hands, my thirsty friends. Those tennis shorts are still coming (I literally cannot wait to write Abby in those shorts, y'all! 🥵) in the next chapter or two, and I'm thinking we may even get to meet Lev briefly? Or maybe a bit of a reappearance from everyone's fave co-pilot Dina? What do y'all reckon?
->
-> At this point, I've changed the number of chapters to a big old '?' because I'm having so much fun writing this, and I feel like I'm changing up the chapter total every time I write. I expect we'll eventually land somewhere between 16–20 chapters, but we'll see when we get there. Can't believe I've been writing this fic for 3+ months now! I'm really happy that I've been able to sustain my focus and I'm still so excited to write these characters after all this time. It's very satisfying and enjoyable!
->
-> I'll probs take a bit of a brain break for a week or so, just to let my tired mind recover from what's been a gauntlet of hectic work and life things, plus bringing this chapter to life—but please don't fret: I am very much dedicated to these babes and want to make sure I can keep writing at a sustainable pace so I can keep this story moving along. It's really awesome having an overarching story I'm so keen to see through, even though a lot of the plot and details are still evolving as these characters lead the way. It's a weird writing journey, but I'm learning so much from this approach.
->
-> As always, your comments feed my creative brain juices. I read every single one, and I do my best to reply when I have the headspace. All your lovely words really kept me going while things were tough in these last few weeks, and every single comment means so much! Honestly, I've not written a lot of big pieces of writing, and didn't expect there to be that many people that would engage in this story the way y'all have. I'm truly thankful there are so many dedicated (and thirstly, lol) Abby stans out there who love this character as much as I do!
+### Chapter End Notes
+
+There's a part 2 of sorts to this chapter, where Abby will definitely rail our dear reader in her office. But I really just wanted to get this epic bit of smut into your hands, my thirsty friends. Those tennis shorts are still coming (I literally cannot wait to write Abby in those shorts, y'all! 🥵) in the next chapter or two, and I'm thinking we may even get to meet Lev briefly? Or maybe a bit of a reappearance from everyone's fave co-pilot Dina? What do y'all reckon?
+At this point, I've changed the number of chapters to a big old '?' because I'm having so much fun writing this, and I feel like I'm changing up the chapter total every time I write. I expect we'll eventually land somewhere between 16–20 chapters, but we'll see when we get there. Can't believe I've been writing this fic for 3+ months now! I'm really happy that I've been able to sustain my focus and I'm still so excited to write these characters after all this time. It's very satisfying and enjoyable!
+I'll probs take a bit of a brain break for a week or so, just to let my tired mind recover from what's been a gauntlet of hectic work and life things, plus bringing this chapter to life—but please don't fret: I am very much dedicated to these babes and want to make sure I can keep writing at a sustainable pace so I can keep this story moving along. It's really awesome having an overarching story I'm so keen to see through, even though a lot of the plot and details are still evolving as these characters lead the way. It's a weird writing journey, but I'm learning so much from this approach.
+As always, your comments feed my creative brain juices. I read every single one, and I do my best to reply when I have the headspace. All your lovely words really kept me going while things were tough in these last few weeks, and every single comment means so much! Honestly, I've not written a lot of big pieces of writing, and didn't expect there to be that many people that would engage in this story the way y'all have. I'm truly thankful there are so many dedicated (and thirstly, lol) Abby stans out there who love this character as much as I do!
+
+</aside>
 
 ## Timber
 
-Chapter Summary
+<aside>
 
-> “You have no idea how hard it was to stop myself from putting my hands all over you, you know. I deserve a fucking medal,” she huffed self-righteously.
->
-> “Oh, poor Abby,” you looked at her with mock sympathy, “so hard done-by! How ever will I make it up to you?” you teased with a small laugh.
->
-> “Oh, you still wanna tease me, huh? After all that?” she smiled, but her eyes were dark with desire, her eyelids lowered. She reached a hand up behind your head, and slid her index and middle fingers into the hair at the base of your neck.
->
-> “Maybe it’s time for a little payback for all the teasing. What do you think?” she purred quietly, as she pulled your mouth down towards hers with exacting pressure against your neck.
->
-> You bit your lip again, and then her mouth found yours, and she kissed you deeply as she grasped your ass ravenously with her well-muscled hand.
->
-> \--
->
-> After allowing you the privilege of fucking her, Abby is all worked up, and desperate to pay you back for all your teasing.
->
-> But can sex with Abby possibly be as memorable as the night you first met? And will she hang around this time for more than just the car ride home?
+### Chapter Summary
 
-Chapter Notes
+“You have no idea how hard it was to stop myself from putting my hands all over you, you know. I deserve a fucking medal,” she huffed self-righteously.
+“Oh, poor Abby,” you looked at her with mock sympathy, “so hard done-by! How ever will I make it up to you?” you teased with a small laugh.
+“Oh, you still wanna tease me, huh? After all that?” she smiled, but her eyes were dark with desire, her eyelids lowered. She reached a hand up behind your head, and slid her index and middle fingers into the hair at the base of your neck.
+“Maybe it’s time for a little payback for all the teasing. What do you think?” she purred quietly, as she pulled your mouth down towards hers with exacting pressure against your neck.
+You bit your lip again, and then her mouth found yours, and she kissed you deeply as she grasped your ass ravenously with her well-muscled hand.
+\--
+After allowing you the privilege of fucking her, Abby is all worked up, and desperate to pay you back for all your teasing.
+But can sex with Abby possibly be as memorable as the night you first met? And will she hang around this time for more than just the car ride home?
 
-> What a time, my babes, what a time. Firstly, thanks for your patience whilst I got the rest I needed to get back in the right headspace for writing. Work really did a number on me at the end of the year.
->
-> Thankfully, my break over the holidays was thoroughly restorative, and in my final week of vacation, Abby all of a sudden just popped up her head again, dropping all sorts of wonderful suggestions into my brain, and ever since then, it's been on!
->
-> I've been writing in earnest on and off for the last 3 weeks or so, and I've edited and re-edited this chapter so many times in the last 6 days to get it juuuuust right. I think every night for the last week or so, I've been like, "yeah tonight it will finally be done!" but then something wouldn't be working quite right and I'd have to rearrange evvvvverything. It's been a challenging one!
->
-> So, with that in mind, I'm really glad to have this at the state it's at: around 12k words, most of which is Abby just tormenting the living hell out of our dear reader with a few little moments of blissful release scattered in between. This chapter is an absolute smut-fest, and I hope that all the build-up has made this chapter worth it for y'all!
->
-> One of the weird things about writing smut is that it can be hard to step back and appreciate it as you're writing it. One thing I can say about this chapter, though? It was a very satisfying journey, and I think y'all are in for an absolute treat.
->
-> I want to say a special thanks for all the love and support y'all have given me since I posted the last chapter. So many of you said such kind, wonderful things, and encouraged me to take my time, even though I know y'all are just as thirsty for Abby/Reader content as I am. My goal for this fic has always been to write from a place of joy and in a way that makes me proud; to make the story as good as I'm able and the smut as delightful as possible, whilst trying not to worry too much about it being perfect. Your patience and support has really made it so much easier to write from that space.
->
-> Every comment, every word of encouragement, every single kudos—and that one person who gave me my first KoFi, bless your cotton socks—is so appreciated. Hearing about how this story has landed with you in different ways, and the things you're enjoying, really helps to guide my writing. So: a massive thanks for taking the time to engage (and keep it coming!).
->
-> Okay. That's it! Buckle up, my fellow Abby-appreciators, and enjoy.
->
-> PS: If you want to support my writing (and \*please\* only do so if you're in a position to!) you can head on over to https://ko-fi.com/lestigres . It really is appreciated, but is in no way expected.
+### Chapter Notes
+
+What a time, my babes, what a time. Firstly, thanks for your patience whilst I got the rest I needed to get back in the right headspace for writing. Work really did a number on me at the end of the year.
+Thankfully, my break over the holidays was thoroughly restorative, and in my final week of vacation, Abby all of a sudden just popped up her head again, dropping all sorts of wonderful suggestions into my brain, and ever since then, it's been on!
+I've been writing in earnest on and off for the last 3 weeks or so, and I've edited and re-edited this chapter so many times in the last 6 days to get it juuuuust right. I think every night for the last week or so, I've been like, "yeah tonight it will finally be done!" but then something wouldn't be working quite right and I'd have to rearrange evvvvverything. It's been a challenging one!
+So, with that in mind, I'm really glad to have this at the state it's at: around 12k words, most of which is Abby just tormenting the living hell out of our dear reader with a few little moments of blissful release scattered in between. This chapter is an absolute smut-fest, and I hope that all the build-up has made this chapter worth it for y'all!
+One of the weird things about writing smut is that it can be hard to step back and appreciate it as you're writing it. One thing I can say about this chapter, though? It was a very satisfying journey, and I think y'all are in for an absolute treat.
+I want to say a special thanks for all the love and support y'all have given me since I posted the last chapter. So many of you said such kind, wonderful things, and encouraged me to take my time, even though I know y'all are just as thirsty for Abby/Reader content as I am. My goal for this fic has always been to write from a place of joy and in a way that makes me proud; to make the story as good as I'm able and the smut as delightful as possible, whilst trying not to worry too much about it being perfect. Your patience and support has really made it so much easier to write from that space.
+Every comment, every word of encouragement, every single kudos—and that one person who gave me my first KoFi, bless your cotton socks—is so appreciated. Hearing about how this story has landed with you in different ways, and the things you're enjoying, really helps to guide my writing. So: a massive thanks for taking the time to engage (and keep it coming!).
+Okay. That's it! Buckle up, my fellow Abby-appreciators, and enjoy.
+PS: If you want to support my writing (and \*please\* only do so if you're in a position to!) you can head on over to https://ko-fi.com/lestigres . It really is appreciated, but is in no way expected.
 
 See the end of the chapter for more [notes](#endnotes9)
+
+</aside>
 
 When Abby’s lips met yours, there was a power behind them—a _want_—that you could _tell_ she was hardly able to contain, as if willing herself with every fibre of her being to hold back the full force of her desire.
 
@@ -4236,67 +4176,52 @@ You tucked your head under her chin and snuggled into her, as her large, warm ha
 
 She tilted her head down and pressed a kiss to the bridge of your nose, and then to your forehead, before she settled her chin back upon your head, cocooning you safely in her embrace.
 
-Chapter End Notes
+<aside>
 
-> So look. I feel like I've promised y'all Abby in tennis shorts for the last few chapters, and I swear to god it's coming. I was having so much fun writing that epic smut for y'all, but I had to end it somewhere or this chapter would just go on forever.
->
-> Also coming up—Abby and Reader will be returning to the cabin with Bear and there'll be lots of cozy / hot times; and we'll be digging in to how Reader's planning for their exhibition is going. Lots of fun stuff on the horizon!
->
-> Thanks again for reading, and I really hope you enjoyed this chapter.
->
-> Every single one of your comments feeds a hungry paragraph, so please tell me what you think—or you can DM me on Tumblr at les-tigres-de-papier
+### Chapter End Notes
+
+So look. I feel like I've promised y'all Abby in tennis shorts for the last few chapters, and I swear to god it's coming. I was having so much fun writing that epic smut for y'all, but I had to end it somewhere or this chapter would just go on forever.
+Also coming up—Abby and Reader will be returning to the cabin with Bear and there'll be lots of cozy / hot times; and we'll be digging in to how Reader's planning for their exhibition is going. Lots of fun stuff on the horizon!
+Thanks again for reading, and I really hope you enjoyed this chapter.
+Every single one of your comments feeds a hungry paragraph, so please tell me what you think—or you can DM me on Tumblr at les-tigres-de-papier
+
+</aside>
 
 ## Firewood
 
-Chapter Summary
+<aside>
 
-> “Wanna know why _else_ I’m the best?” she asked, looking pleased with herself as she climbed into the bed again with her mug in one hand. She sat cross-legged, facing you.
->
-> “It’s it your thighs?” you whipped back at her without skipping a beat, using your free hand to firmly dig your fingers into the flesh of her leg. “Because, Abby—I’m already _well-acquainted_ with your thighs,” you finished sounding like a know-it-all.
->
-> You took a tentative sip of tea to gauge the temperature of the steaming liquid, while your eyes peeked cheekily at her from over the rim of the mug.
->
-> She made a little snort.
->
-> “Pffft, dork.” Abby rolled her eyes at you, but you were sure you caught a hint of a proud smirk at the corner of her lips.
->
-> \--
->
-> You wake up with Abby in your bed, thirst texts from Dina on your phone, and you still can't quite believe Abby wants to be with _you_ after everything that happened.
->
-> But when you and Abby head to her place to relieve Bear's dogsitter, will your anxiety and your emotional hangovers from your time with the doctor sabotage things?
+### Chapter Summary
 
-Chapter Notes
+“Wanna know why _else_ I’m the best?” she asked, looking pleased with herself as she climbed into the bed again with her mug in one hand. She sat cross-legged, facing you.
+“It’s it your thighs?” you whipped back at her without skipping a beat, using your free hand to firmly dig your fingers into the flesh of her leg. “Because, Abby—I’m already _well-acquainted_ with your thighs,” you finished sounding like a know-it-all.
+You took a tentative sip of tea to gauge the temperature of the steaming liquid, while your eyes peeked cheekily at her from over the rim of the mug.
+She made a little snort.
+“Pffft, dork.” Abby rolled her eyes at you, but you were sure you caught a hint of a proud smirk at the corner of her lips.
+\--
+You wake up with Abby in your bed, thirst texts from Dina on your phone, and you still can't quite believe Abby wants to be with _you_ after everything that happened.
+But when you and Abby head to her place to relieve Bear's dogsitter, will your anxiety and your emotional hangovers from your time with the doctor sabotage things?
 
-> Heyyyyyyy my lovely fellow Abby stans! Welcome back! It's been a minute, huh? Bet you thought I'd forgotten all about this fic. I absolutely promise I'd never do that.
->
-> There's been a Pretty Big Thing going on for me in the last several months that has been keeping me busy: I HAD TOP SURGERYYYYY!
->
-> Obviously this is extremely very exciting, especially as I have been working towards for the last several years in particular, and been on a surgical waiting list for 13 months (and that's through private health; yes, the Australian 'healthcare' system is \_also_a W I L D R I D E for trans/enby folks). I have had so much to do in the last few months, from a whole bunch of pre-op appointments, tests and psych stuff; figuring leave and announcements out with my workplace (who have been incredibly supportive, I'm really freaking lucky); and of course a metric fuckton of healthcare admin 🫠 in addition to all the usual stuff for my chronic health things. What a time!
->
-> As such, I have been in hardcore prioritisation mode, and something had to give, and unfortunately it was our thirst for Abby. I feel dirty saying that, and when I looked back today at when I posted the last chapter, let's just say that I was as shocked as you. 🥲 I have missed writing this so much and have felt an ache in my heart at having to put it on the back-burner.
->
-> Anyhoo, I'm 6 weeks post-op as of this week, all is healing well (hurrah!), and jfc not having boobs when you have despised having boobs for decades IS A WHOLE MOOD. I couldn't be happier, and I'm having daily gender euphoria moments.
->
-> I want to take this opportunity to say to all my fellow trans/enby bbs out there—I love you, I see you, hang in there, you can get through this and experience genderqueer and affirming joy, and it is absolutely worth the extremely difficult wait.
->
-> That little public service announcement aside—let's talk about this ficccccc!
->
-> I've been working on this chapter on and off when I've had spoons over the last few months. It's been challenging to work through the original narrative arc that I had planned, so I've been doing sooooo much stewing trying to find the best way to escalate this plot in a way that feels authentic to the characters. I haven't _totally_ nailed it yet, but I've written things in such a way that it gives me a few places I can take this as I continue to figure it out.
->
-> When I started writing this chapter, I was like, "No smut here, all fluff and plot!" and so i wrote a bunch of good fluff with some light plot but then all of a sudden smut happened and before I knew it there was like 11,000+ words and I hadn't even gotten to the freaking long-awaited tennis shorts jfc what is wrong with me.
->
-> SO I decided to split the chapter in two parts.
->
-> That means \*this\* chapter is a fluffy, smut-free cute fest, with a tiny sprinkle of plot. A nice, warm, cozy reacquaintance with our dear Reader and our beloved Abby and her tanky arms. We also get to meet Lev, and I'm really happy with how he's turned out and I had lots of fun building off the relationship between them that Naughty Dog establishes in TLOU2.
->
-> The _next_ chapter is about half-done. It will be some (already-written, pretty excellent IMHO) smut, some more narrative-building fluff and other bits of character insights I still have to write—and then for fuck's sake this long-awaited tennis match might actually happen, because WE (I?) JUST WANT ABBY IN TENNIS SHORTS ALREADY. (As an aside, this tennis match is of virtually no importance to the broader plot; I just really wanted to give Reader the opportunity to ogle Tennis Shorts Abby from the sidelines, so I've really made it into a whole thing that it's _actually not at all_—but you know, sometimes you just really decide you need to write a thing, I guess?!! 🤷‍♂️🤣).
->
-> ⚠️ **Some important content notes for this chapter:** there is a very brief mention of Yara’s death, as well as a very brief mention of Lev and Yara's emotionally abusive ultra-religious parents and church (boooooo!). If that's a no go for you, this occurs in the last third (or thereabouts) of this chapter.
->
-> Okay. Enough preamble—I hope you enjoy cozy, fluffy Abby and Reader, with a side of Lev and a garnish of Dina thirst texts!
+### Chapter Notes
+
+Heyyyyyyy my lovely fellow Abby stans! Welcome back! It's been a minute, huh? Bet you thought I'd forgotten all about this fic. I absolutely promise I'd never do that.
+There's been a Pretty Big Thing going on for me in the last several months that has been keeping me busy: I HAD TOP SURGERYYYYY!
+Obviously this is extremely very exciting, especially as I have been working towards for the last several years in particular, and been on a surgical waiting list for 13 months (and that's through private health; yes, the Australian 'healthcare' system is \_also*a W I L D R I D E for trans/enby folks). I have had so much to do in the last few months, from a whole bunch of pre-op appointments, tests and psych stuff; figuring leave and announcements out with my workplace (who have been incredibly supportive, I'm really freaking lucky); and of course a metric fuckton of healthcare admin 🫠 in addition to all the usual stuff for my chronic health things. What a time!
+As such, I have been in hardcore prioritisation mode, and something had to give, and unfortunately it was our thirst for Abby. I feel dirty saying that, and when I looked back today at when I posted the last chapter, let's just say that I was as shocked as you. 🥲 I have missed writing this so much and have felt an ache in my heart at having to put it on the back-burner.
+Anyhoo, I'm 6 weeks post-op as of this week, all is healing well (hurrah!), and jfc not having boobs when you have despised having boobs for decades IS A WHOLE MOOD. I couldn't be happier, and I'm having daily gender euphoria moments.
+I want to take this opportunity to say to all my fellow trans/enby bbs out there—I love you, I see you, hang in there, you can get through this and experience genderqueer and affirming joy, and it is absolutely worth the extremely difficult wait.
+That little public service announcement aside—let's talk about this ficccccc!
+I've been working on this chapter on and off when I've had spoons over the last few months. It's been challenging to work through the original narrative arc that I had planned, so I've been doing sooooo much stewing trying to find the best way to escalate this plot in a way that feels authentic to the characters. I haven't \_totally* nailed it yet, but I've written things in such a way that it gives me a few places I can take this as I continue to figure it out.
+When I started writing this chapter, I was like, "No smut here, all fluff and plot!" and so i wrote a bunch of good fluff with some light plot but then all of a sudden smut happened and before I knew it there was like 11,000+ words and I hadn't even gotten to the freaking long-awaited tennis shorts jfc what is wrong with me.
+SO I decided to split the chapter in two parts.
+That means \*this\* chapter is a fluffy, smut-free cute fest, with a tiny sprinkle of plot. A nice, warm, cozy reacquaintance with our dear Reader and our beloved Abby and her tanky arms. We also get to meet Lev, and I'm really happy with how he's turned out and I had lots of fun building off the relationship between them that Naughty Dog establishes in TLOU2.
+The _next_ chapter is about half-done. It will be some (already-written, pretty excellent IMHO) smut, some more narrative-building fluff and other bits of character insights I still have to write—and then for fuck's sake this long-awaited tennis match might actually happen, because WE (I?) JUST WANT ABBY IN TENNIS SHORTS ALREADY. (As an aside, this tennis match is of virtually no importance to the broader plot; I just really wanted to give Reader the opportunity to ogle Tennis Shorts Abby from the sidelines, so I've really made it into a whole thing that it's _actually not at all_—but you know, sometimes you just really decide you need to write a thing, I guess?!! 🤷‍♂️🤣).
+⚠️ **Some important content notes for this chapter:** there is a very brief mention of Yara’s death, as well as a very brief mention of Lev and Yara's emotionally abusive ultra-religious parents and church (boooooo!). If that's a no go for you, this occurs in the last third (or thereabouts) of this chapter.
+Okay. Enough preamble—I hope you enjoy cozy, fluffy Abby and Reader, with a side of Lev and a garnish of Dina thirst texts!
 
 See the end of the chapter for more [notes](#endnotes10)
+
+</aside>
 
 You woke again as an incessant grumble hollered impatiently from within your stomach.
 
@@ -4952,13 +4877,15 @@ You bit your lip, looking into her sparkling blue eyes as she stared dreamily ba
 
 Damn, this was gonna be one hell of a long weekend.
 
-Chapter End Notes
+<aside>
 
-> Okay! I hope you enjoyed reading this as much as I enjoyed writing it. I continue to value your comments so much. I read each and every one of them, and do my best to reply. Tell me what you think, or what you found fun or interesting about this chapter—or just swoon over Abby fluff with me UwU.
->
-> Writing this chapter was like writing a warm hug, so I hope it came across that way.
->
-> Looking forward to the next one! ILYBBSSSSSS!!!!
+### Chapter End Notes
+
+Okay! I hope you enjoyed reading this as much as I enjoyed writing it. I continue to value your comments so much. I read each and every one of them, and do my best to reply. Tell me what you think, or what you found fun or interesting about this chapter—or just swoon over Abby fluff with me UwU.
+Writing this chapter was like writing a warm hug, so I hope it came across that way.
+Looking forward to the next one! ILYBBSSSSSS!!!!
+
+</aside>
 
 ## Afterword
 
