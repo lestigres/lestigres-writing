@@ -1,10 +1,5 @@
 export default {
-	title: "Nervous Ghost",
-	url: "https://nervousghost.com/",
+	title: "Les Tigres",
+	url: "https://lestigres.gay/",
 	language: "en",
-	author: {
-		name: "Brodie Cato",
-		email: "hello@nervousghost.com",
-		url: "https://nervousghost.com/about/",
-	},
 };
