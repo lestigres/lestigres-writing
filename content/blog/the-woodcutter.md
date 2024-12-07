@@ -1,7 +1,6 @@
 ---
 title: The Woodcutter
-date: 2023-08-01
-updated: 2024-07-02
+date: 2024-07-02
 description: |
   “You have guests come to stay often?” you continued, slowly and quietly, your body now drifting toward Abby's ever so slowly, your hooded eyes matching her own, lust playing obviously across both your features.
 
