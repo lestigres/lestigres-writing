@@ -17,6 +17,20 @@ description: |
 
   The two connect immediately, but will they be able to keep their professional and personal lives separate, and will Abby be able to keep her need for control in check?
 tags:
+  - Explicit
+  - F/F
+  - The Last of Us (Video Games)
+  - Abby (The Last of Us)/Reader
+  - Abby (The Last of Us) & Reader
+  - Abby (The Last of Us)
+  - Reader
+  - Isaac (The Last of Us)
+  - Mel (The Last of Us)
+  - Nora (The Last of Us)
+  - Salt Lake Crew (The Last of Us)
+  - Bear (The Last of Us)
+  - Dina (The Last of Us)
+  - Ellie (The Last of Us)
   - Smut
   - Fluff
   - Fluff and Smut
