@@ -74,7 +74,7 @@ tags:
   - but there is not drunkenness
   - and there is lots of sexy consent
 ---
-![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](../uploads/woodcutter-asset.png)
+![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](Woodcutter-asset.png)
 
 ## Old Growth
 
@@ -1550,7 +1550,7 @@ As he did so, Abby crossed her arms, bringing her coffee cup back up to her subl
 
 The last time you’d seen her do this was the previous morning—when her face had been looking up at you from between your thighs.
 
-*Not NOW***,** you told yourself, gulping the thought down visibly, which caused Abby’s plush lips to curl deliciously again. Satisfied she’d had the desired effect on you, she turned back towards Owen, who had started writing a list of tasks on the whiteboard.
+*Not NOW*\*\*,\*\* you told yourself, gulping the thought down visibly, which caused Abby’s plush lips to curl deliciously again. Satisfied she’d had the desired effect on you, she turned back towards Owen, who had started writing a list of tasks on the whiteboard.
 
 *How the hell am I gonna get through this project when she’s making those faces at every opportunity?* You took a big inhale, resigning yourself to what you supposed was going to be a challenging few months. *Exhibition, exhibition, exhibition,* you repeated in your mind.
 
@@ -3179,7 +3179,7 @@ When you allowed your fingers to sink between her folds, Abby let out the smalle
 
 Your mouth fell open when you realised just how wet she *truly* was.
 
-“Oh, *fuck*, Abby,” you groaned in complete disbelief. She was so goddamned wet that your fingers slid effortlessly between her labia. Her cunt was absolutely soaked. You leaned forward so your mouth was immediately next to her right ear, “Abby—you feel *incredible***,**” you purred, voice barely above a whisper as you slowly dragged your fingers along the length of her, brushing against her swollen clit whenever you reached her apex. “I can’t believe how *wet* you are for me. You’re practically dripping. Such a good girl,” you finished, biting your lower lip.
+“Oh, *fuck*, Abby,” you groaned in complete disbelief. She was so goddamned wet that your fingers slid effortlessly between her labia. Her cunt was absolutely soaked. You leaned forward so your mouth was immediately next to her right ear, “Abby—you feel *incredible*\*\*,\*\*” you purred, voice barely above a whisper as you slowly dragged your fingers along the length of her, brushing against her swollen clit whenever you reached her apex. “I can’t believe how *wet* you are for me. You’re practically dripping. Such a good girl,” you finished, biting your lower lip.
 
 “Hnnnngh!” She let out another soft groan, but this one was slower, more drawn out. She sighed, shoulders and chest swelling forward slightly in pleasure, allowing her head to fall back against the chair back.
 
