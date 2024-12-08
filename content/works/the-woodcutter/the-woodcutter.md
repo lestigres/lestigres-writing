@@ -75,6 +75,13 @@ tags:
   - and there is lots of sexy consent
 ---
 ![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](Woodcutter-asset.png)
+{% css %}
+	img[alt^="A drawing of a very queer looking axe"] {
+		@media (prefers-color-scheme: dark) {
+			filter: invert(1);
+		}
+	}
+{% endcss %}
 
 ## Old Growth
 
