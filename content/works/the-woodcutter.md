@@ -74,7 +74,7 @@ tags:
   - but there is not drunkenness
   - and there is lots of sexy consent
 ---
-![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](/uploads/woodcutter-asset.png)
+![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](../uploads/woodcutter-asset.png)
 
 ## Old Growth
 
