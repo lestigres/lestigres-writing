@@ -16,7 +16,14 @@ layout: layouts/base.njk
 	{%- endfor %}
 </ul>
 
-{{ content | safe }}
+<script type="module" src="/js/toc.js"></script>
+<table-of-contents
+	for="main-content"
+></table-of-contents>
+
+<div id="main-content">
+	{{ content | safe }}
+</div>
 
 {%- if collections.posts %}
 	{%- set previousPost = collections.posts | getPreviousCollectionItem %}

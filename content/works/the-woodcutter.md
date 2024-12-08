@@ -995,11 +995,11 @@ I’m excited to finally have this ready to go. There’s some key plot moments 
 No smut in this one, but get ready for angst, though. What’s a smutty love story without some heavy plot here and there to set the scene for some good make-up sex later, right?!
 But we finally get to meet some more of the Salt Lake crew!
 
-#### Chapter Notes for every character not named Owen or Mel: \*\[Elaborate backstory on their personality, goals, strengths, weaknesses, and how they know Abby\]\*
+Chapter Notes for every character not named Owen or Mel: \*\[Elaborate backstory on their personality, goals, strengths, weaknesses, and how they know Abby\]\*
 
-#### Chapter Notes for Owen: \*Khakis and boring sweaters.\*
+Chapter Notes for Owen: \*Khakis and boring sweaters.\*
 
-#### Chapter Notes for Mel: \*Beige turtleneck sweater dress.\*
+Chapter Notes for Mel: \*Beige turtleneck sweater dress.\*
 
 It’s not that I hate them… I just found their whole plotline from the game gave me the irrits.
 I also had a lot of fun turning misogynist-vibes Jordan into an enby queer with a bisexual haircut. ENJOY!
