@@ -1,6 +1,8 @@
 ---
 title: The Woodcutter
 date: 2024-07-02T00:00:00Z
+image: Woodcutter-asset.png
+imageAlt: "A drawing of a very queer looking axe on it's side with the text “The Woodcutter” above it."
 description: >
   “You have guests come to stay often?” you continued, slowly and quietly, your
   body now drifting toward Abby's ever so slowly, your hooded eyes matching her
@@ -74,15 +76,6 @@ tags:
   - but there is not drunkenness
   - and there is lots of sexy consent
 ---
-![A drawing of a very queer looking axe on it's side with the text &quot;The Woodcutter&quot; above it.](Woodcutter-asset.png)
-
-{% css %}
-	img[alt^="A drawing of a very queer looking axe"] {
-		@media (prefers-color-scheme: dark) {
-			filter: invert(1);
-		}
-	}
-{% endcss %}
 
 ## Old Growth
 
