@@ -1,14 +1,21 @@
 ---js
+const layout = 'layouts/home.njk';
 const eleventyNavigation = {
 	key: "Home",
 	order: 1
 };
 
 const numberOfLatestPostsToShow = 3;
+
+const eleventyComputed = {
+	title: 'Les Tigres',
+};
 ---
+<h1>{{ title }}</h1>
+
 {% set postsCount = collections.posts | length %}
 {% set latestPostsCount = postsCount | min(numberOfLatestPostsToShow) %}
-<h1>Latest {{ latestPostsCount }} Works</h1>
+<h2>Latest {{ latestPostsCount }} Works</h2>
 
 {% set postslist = collections.posts | head(-1 * numberOfLatestPostsToShow) %}
 {% set postslistCounter = postsCount %}

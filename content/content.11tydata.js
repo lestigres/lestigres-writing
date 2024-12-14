@@ -1,3 +1,6 @@
 export default {
-	layout: "layouts/home.njk",
+	layout: "layouts/page.njk",
+	eleventyComputed: {
+		title: (data) => data.page.filePathStem.split('/').pop(),
+	},
 };
