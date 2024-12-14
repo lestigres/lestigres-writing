@@ -2,7 +2,9 @@
 title: The Woodcutter
 date: 2024-07-02T00:00:00Z
 image: Woodcutter-asset.png
-imageAlt: "A drawing of a very queer looking axe on it's side with the text “The Woodcutter” above it."
+imageAlt: >-
+  A drawing of a very queer looking axe on it's side with the text “The
+  Woodcutter” above it.
 description: >
   “You have guests come to stay often?” you continued, slowly and quietly, your
   body now drifting toward Abby's ever so slowly, your hooded eyes matching her
@@ -76,7 +78,6 @@ tags:
   - but there is not drunkenness
   - and there is lots of sexy consent
 ---
-
 ## Old Growth
 
 The light was rapidly descending through the trees towards the horizon, and the temperature was dropping by the minute. You had been walking in circles for about half an hour, and the warm sun that had shone down on your face when you left for your hike a few hours ago, giving you a false sense of warmth, was going to be gone in no time.
@@ -4832,4 +4833,4 @@ Looking forward to the next one! ILYBBSSSSSS!!!!</p>
 
 ## Afterword
 
-Please [drop by the Archive and comment](http://archiveofourown.org/works/49032754/comments/new) to let the creator know if you enjoyed their work!
+Please [drop by the Archive and comment](http://archiveofourown.org/works/49032754/comments/new) to let me know if you enjoyed this work!
