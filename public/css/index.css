@@ -253,7 +253,7 @@ footer a {
 	right: -0.5em;
 	bottom: -0.5em;
 	left: -0.5em;
-	background: linear-gradient(to right, var(--color-1), transparent 50%);
+	background: linear-gradient(to right, light-dark(var(--color-1), var(--color-13)), transparent 50%);
 }
 .postlist-item:not(:focus-within) {
 	outline-offset: 0;
@@ -279,7 +279,6 @@ footer a {
 }
 .postlist-date {
 	font-size: 0.75em;
-	color: var(--gray-14);
 }
 .postlist-date {
 	grid-area: date;
